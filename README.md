@@ -1,1 +1,1 @@
-# kumpulrego
+# kumpulrejo
